@@ -1,0 +1,1 @@
+# lahan-pribadi-assets
